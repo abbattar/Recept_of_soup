@@ -57,3 +57,12 @@ _Количество порций: 6_
 
 ![Заливаем кипяток](https://img.povar.ru/uploads/ba/13/db/96/italyanskii_chechevichnii_sup-529623.JPG)
 6. **Залейте кипятком и варите до мягкости чечевицы (от 15мин. до получаса, зависит от сорта)**
+
+![Пюреруем](https://img.povar.ru/uploads/8c/fa/c4/1c/italyanskii_chechevichnii_sup-529624.JPG)
+7. **Готовый суп снимите с огня, удалите лавровый лист и пюреруйте погружным блендером**
+
+![Повторим кипчение](https://img.povar.ru/uploads/9f/bb/1c/8a/italyanskii_chechevichnii_sup-529625.JPG)
+8. **Доведите суп до кипения ещё раз. Снимите м огня. Суп готов. Натрите сыр на тёрке, порежьте зелень**
+
+![Подаём суп](https://img.povar.ru/uploads/f6/bc/38/ac/italyanskii_chechevichnii_sup-529626.JPG)
+9. **Подавайте суп с сыром и зеленью. Приятного аппетита**
