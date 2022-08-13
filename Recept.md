@@ -75,3 +75,5 @@ _Количество порций: 6_
 ![Подаём суп](https://img.povar.ru/uploads/f6/bc/38/ac/italyanskii_chechevichnii_sup-529626.JPG)
 
 9. **Подавайте суп с сыром и зеленью. Приятного аппетита**
+
+![Bon appetit](https://st3.depositphotos.com/1035649/19057/v/1600/depositphotos_190579382-stock-illustration-bon-appetit-lettering-template.jpg)
